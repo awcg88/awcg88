@@ -1,20 +1,15 @@
-吃瓜网最新地址👋（最新更新时间2023-11-21）
+暗网吃瓜最新地址👋（最新更新时间2023-11-24）
 
-⏰加入扣扣吃瓜群：http://e.sftxwjfmbt73.cn/s/b56H
+⏰加入Telegram暗网吃瓜群：https://t.me/cgddz1
 
-⏰免翻入口6：https://cgwang.shop （最新）
+⏰免翻入口5：https://cgddz.biz（最新）
 
-⏰免翻入口6：https://cgwang.space
+⏰免翻入口4：https://cgddz.vip
 
-⏰免翻入口5：https://cgwang.info
+⏰免翻入口3：https://cgddz.co
 
-⏰免翻入口4：https://cgwang.lol
+⏰免翻入口2：https://cgddz.biz
 
-⏰免翻入口3：https://cgwang.live
+⏰免翻入口1：https://cgddz.com/
 
-⏰免翻入口2：https://cgwang.org
-
-⏰免翻入口1：https://cgwang.cc
-
-⏰免翻入口（备份）https://hygpz2.ifwbup.com（最新）
 
