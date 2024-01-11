@@ -2,7 +2,7 @@
 
 ⏰加入Telegram暗网吃瓜群：https://t.me/cgddz1
 
-⏰免翻入口5：https://cgddz.xyz（最新）
+⏰免翻入口5：https://cgddz.cc（最新）
 
 ⏰免翻入口4：https://cgddz.vip
 
