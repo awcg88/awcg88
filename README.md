@@ -1,8 +1,8 @@
-暗网吃瓜最新地址👋（最新更新时间2024-2-26）
+暗网吃瓜最新地址👋（最新更新时间2024-3-9）
 
 ⏰加入Telegram暗网吃瓜群：https://t.me/cgddz1
 
-⏰免翻入口（最新）：https://awcg11.com
+⏰免翻入口（最新）：https://awcg12.com
 
 ⏰永久入口1：https://cgddz.cc
 
