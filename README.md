@@ -2,7 +2,7 @@
 
 ⏰加入Telegram暗网吃瓜群：https://t.me/cgddz1
 
-⏰免翻入口（最新）：https://awcg16.com
+⏰免翻入口（最新）：https://awcg17.com
 
 ⏰永久入口1：https://awcg.fun
 
