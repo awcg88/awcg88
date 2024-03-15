@@ -4,7 +4,7 @@
 
 ⏰免翻入口（最新）：https://awcg16.com
 
-⏰永久入口1：https://cgddz.cc
+⏰永久入口1：https://awcg.fun
 
 ⏰永久主页入口2：https://cgddz.cc
 
