@@ -1,6 +1,6 @@
-暗网吃瓜最新地址👋（最新更新时间2024-5-29）
+51暗网最新地址👋（最新更新时间2024-5-29）
 
-⏰加入Telegram暗网吃瓜群：https://t.me/cgddz1
+⏰加入Telegram51暗网群：https://t.me/cgddz1
 
 ⏰免翻入口（最新）：https://awcg52.com
 
