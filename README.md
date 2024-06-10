@@ -2,7 +2,7 @@
 
 ⏰加入Telegram51暗网群：https://t.me/cgddz1
 
-⏰免翻入口（最新）：https://awcg52.com
+⏰免翻入口（最新）：https://awcg53.com
 
 ⏰永久入口1：https://awcg.fun
 
