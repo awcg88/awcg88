@@ -1,8 +1,8 @@
-51暗网最新地址👋（最新更新时间2024-6-20）
+51暗网最新地址👋（最新更新时间2024-6-29）
 
 ⏰加入Telegram51暗网群：https://t.me/cgddz1
 
-⏰免翻入口（最新）：https://awcg54.com
+⏰免翻入口（最新）：https://awcg55.com
 
 ⏰永久入口1：https://awcg.fun
 
